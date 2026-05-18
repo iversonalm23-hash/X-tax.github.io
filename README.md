@@ -1,1 +1,1 @@
-bight bn te egg# X-tax.github.io
+ X-tax.github.io
